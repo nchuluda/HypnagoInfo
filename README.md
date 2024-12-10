@@ -1,4 +1,4 @@
-# Hypnago
+# [Hypnago](https://apps.apple.com/us/app/hypnago/id6502776172)
 
 ## Delve Into the World of Creativity with Hypnago
 
